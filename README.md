@@ -1,0 +1,1 @@
+# progDispositivosMoveis2023.1
